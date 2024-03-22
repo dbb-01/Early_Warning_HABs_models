@@ -1,7 +1,7 @@
 #
 <b></b><br>
 
-<b>Authors</b><br>
+<b></b><br>
 <br>
 <b></b> <br>
 
